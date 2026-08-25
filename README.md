@@ -1,0 +1,1 @@
+# Receita-CafeGC2026
